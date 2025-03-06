@@ -11,7 +11,7 @@
 
 <p>The <strong>All American Pressure Cooker Canner</strong> is a premium choice for home canners and professional food preservers. Designed for durability, efficiency, and safety, this pressure canner allows you to preserve meats, vegetables, and other low-acid foods with ease.</p>
 
-[**✅ Buy No at Amazon**](https://amzn.to/43JafjZ)
+[**✅ Buy Now at Amazon**](https://amzn.to/43JafjZ)
 
 <h2>Why Choose an All American Pressure Cooker Canner?</h2>
 
